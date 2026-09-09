@@ -1,14 +1,26 @@
-## 𑣲 eden
-20 [any prns](https://pronouns.cc/@ripicit) catgender lesbian thing
+<img width="800" height="450" alt="ezgif-1a9634ab03230eab" src="https://github.com/user-attachments/assets/7a1f2ef1-94a2-4687-8d70-152ecae73453" />
+<p align="center">
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+</p>
 
-syshost & fictive of [one](https://projectsekai.fandom.com/wiki/Akiyama_Mizuki) , [two](https://sonic.fandom.com/wiki/Amy_Rose) , [three](https://deltarune.fandom.com/wiki/Kris) & others idc abt
+<p align="center">
+𑣲 eden
+</p>
 
-i LOOOOOOVE deltarune and hsr rn, other interests include sonic & exe content, rhythm games (bandori, prsk, enstars [sorry]), overwatch and a bunch of other stuff  
-c+h++anything is fine idm!! i might be offtab sometimes so feel free 2 whisper and if i dont get back to u im sryyww. i luv making new friends and meeting ppl so PLS dont be afraid to come up to me or whisper,, most of the time ill be sitting with my sister nd my friends!!<33 
+<p align="center">
+ 20 she / it / any ⚢ 
+</p>
 
-<img width="374" height="374" alt="vanillamace-dancing" src="https://github.com/user-attachments/assets/b109b7fd-ec11-4ea6-9204-951acb453fd8" />
+<p align="center">
+syshost & fictive of mizuki akiyama + amy rose
+</p>
+
+<p align="center">
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+</p>
+
+<img width="800" height="450" alt="ezgif-11a54c4a5e16df96" src="https://github.com/user-attachments/assets/04de33f9-67ad-4eef-9bc5-a2b8e4a6c783" />
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ujq7ih6rl2bea22zan27yismf&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000)](https://spotify-github-profile.kittinanx.com/api/view?uid=ujq7ih6rl2bea22zan27yismf&redirect=true) 
-
-<sup>copied from my other github ruiemu bc i forgot i had this url and i like it better as the n1 enamizu fan</sup>
 
